@@ -1,1 +1,2 @@
-not new now
+doing hard things
+
